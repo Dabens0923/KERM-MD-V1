@@ -66,7 +66,7 @@
 `✠ IF YOU WANT MORE ABOUT KERM MD V1 WHATSAPP BOT :-NEW UPDATED NEW CMDS SO SUBSCRIBE OUR YOUTUBE CHANNEL FOR MORE INFORMATION CLICK THIS BLUE BUTTON 🔳 AND JOIN THE YOUTUBE CHANNEL ✠`
 
 
-<a href="https://youtu.be/0bV0igGjDlM"><img src="https://img.shields.io/badge/%F0%9F%8E%89%20ᴊᴏɪɴ%20ᴏᴜʀ%20ʏᴏᴜᴛᴜʙᴇ%20ᴄʜᴀɴɴᴇʟ-blue" alt="🔰 ᴊᴏɪɴ ᴍʏ ʏᴏᴜᴛᴜʙᴇ ғᴏʀ ᴜᴘᴅᴀᴛᴇ 🔰" width="300"></a>
+<a href="https://youtu.be/@x.nor11"><img src="https://img.shields.io/badge/%F0%9F%8E%89%20ᴊᴏɪɴ%20ᴏᴜʀ%20ʏᴏᴜᴛᴜʙᴇ%20ᴄʜᴀɴɴᴇʟ-blue" alt="🔰 ᴊᴏɪɴ ᴍʏ ʏᴏᴜᴛᴜʙᴇ ғᴏʀ ᴜᴘᴅᴀᴛᴇ 🔰" width="300"></a>
 
 --------
 
@@ -77,7 +77,7 @@
 `✠ HOW TO DEPLOY KERM MD V1 ON CODESPACE FREE GITHUB WATCH VIDEO ✠`
 
 <p align="center">
-   <a href="https://youtu.be/RhSiiBnhz8U?si=ief1wJ1_Afg-gB4x"><img src="https://i.ibb.co/71mYRh4/116-1161192-podcast-subscribe-listen-button-youtube-sign-hd-png.png" alt="Watch tutorial on YouTube" border="0"  width="105">
+   <a href="https://youtu.be/0bV0igGjDlM"><img src="https://i.ibb.co/71mYRh4/116-1161192-podcast-subscribe-listen-button-youtube-sign-hd-png.png" alt="Watch tutorial on YouTube" border="0"  width="105">
     </a>
 </p>
 
