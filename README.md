@@ -59,7 +59,7 @@
 `✠ IF YOU WANT MORE ABOUT KERM MD V1 WHATSAPP BOT :-NEW UPDATED NEW CMDS SO JOIN OUR WHATSAPP CHANNEL FOR MORE INFORMATION CLICK THIS RED BUTTON 🔳 AND JOIN THE GROUP ✠`
 
 
-<a href="https://whatsapp.com/channel/0029Vafn6hc7DAX3fzsKtn45"><img src="https://img.shields.io/badge/%F0%9F%8E%89%20ᴊᴏɪɴ%20ᴏᴜʀ%20ᴡʜᴀᴛsᴀᴘᴘ%20ᴄʜᴀɴɴᴇʟ-red" alt="🔰 ᴊᴏɪɴ ᴍʏ ᴡʜᴀᴛsᴀᴘᴘ ᴄʜᴀɴɴᴇʟ ғᴏʀ ᴜᴘᴅᴀᴛᴇ 🔰" width="300"></a>
+<a href="https://whatsapp.com/channel/0029Vb6DFKpAjPXQZrPxdT3n"><img src="https://img.shields.io/badge/%F0%9F%8E%89%20ᴊᴏɪɴ%20ᴏᴜʀ%20ᴡʜᴀᴛsᴀᴘᴘ%20ᴄʜᴀɴɴᴇʟ-red" alt="🔰 ᴊᴏɪɴ ᴍʏ ᴡʜᴀᴛsᴀᴘᴘ ᴄʜᴀɴɴᴇʟ ғᴏʀ ᴜᴘᴅᴀᴛᴇ 🔰" width="300"></a>
 
 -----------
 
