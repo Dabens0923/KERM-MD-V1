@@ -1,8 +1,7 @@
 ---------
 
 ### <br>  ❖ KERM MD V1 ❖
-🔰 **`THE WORLD BEST WHATSAPP BOT CREATED BY KGTECH 🇨🇲`** 🔰<br>
-🔰 **`X.N.O.R Backup File`** 🔰
+🔰 **`THE WORLD BEST WHATSAPP BOT CREATED BY KGTECH 🇨🇲`** <br> **`X.N.O.R Backup File`** 🔰
 ----------
 
 <a><img src='https://i.imgur.com/Ip3ubrt.jpeg'/></a>
